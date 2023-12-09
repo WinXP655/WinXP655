@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing now
 - 📫 How to reach me:
   Discord: WinXP#4176
+  
   E-mail: pronin11-nik@yandex.ru
 
 <!---
