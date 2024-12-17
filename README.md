@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate on nothing now
 - 📫 How to reach me:
 
-  Discord: WinXP#4176
+  Discord: WinXP#4176 (inactive)
+
+  Discord: pcsettings
 
 <!---
 WinXP655/WinXP655 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
